@@ -56,5 +56,19 @@ Master in Life Science & Health – Biology of Infectious Diseases
 **Polytechnique of Health, Ministry of Health, Indonesia**  2019
 Bachelor of Applied Science in Medical Laboratory Technology 
 
+## 🌱 Side Project: Awal Sehat  
+**Awal Sehat** is a digital health engagement project focused on early awareness and preventive habits through social media.  
+My role: concept design, engagement strategy, and content analysis to explore behavioral change in health communication.  
+📊 [See Project ➜]
+
+## 🏃 Personal Projects  
+
+### 🏅 Half Marathon 2026 Journey 
+Exploring discipline, endurance, and the intersection between physical performance and mental focus. 
+📊 [See Progress and analysis ➜]
+
+### 📷 Photography  
+Capturing everyday life and community stories through the lens. Visual storytelling remains a side passion that complements my scientific curiosity.  
+
 
 
