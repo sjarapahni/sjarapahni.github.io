@@ -72,7 +72,8 @@ Exploring discipline, endurance, and the intersection between physical performan
 📊 [See Progress and analysis ➜]
 
 ### 📷 Photography  
-Capturing everyday life and community stories through the lens. Visual storytelling remains a side passion that complements my scientific curiosity.  
+Capturing everyday life and community stories through the lens. Visual storytelling remains a side passion that complements my scientific curiosity. https://vsco.co/cekerontheroad/gallery
+
 
 
 
