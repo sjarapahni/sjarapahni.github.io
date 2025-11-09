@@ -20,13 +20,16 @@ Currently exploring PhD opportunities and Research Assistant that may lead to Ph
 - Studied genetic determinants of *Anopheles gambiae* susceptibility to *Plasmodium falciparum*  
 Investigating Molecular Basis of Vector Susceptibility to *Plasmodium falciparum*”  
 Supervised by Dr. Catherine Bourgouin, Institut Pasteur Paris
-📄 [Read Report ➜] 
+📄 [Read Report ➜]
+
 **Research Trainee** — *CIMI-INSERM U1135, Paris (Jan–Jul 2022)*  
-- Evaluated potential antimalarial compounds targeting *Plasmodium* liver stage  
+- Evaluated potential antimalarial compounds targeting *Plasmodium* liver stage
+📄 [Read Report ➜]
 
 **Research Trainee** — *Institut Pasteur, Cambodia (Apr–Jul 2021)*  
 - Assessed *Plasmodium vivax* resistance to Mefloquine  
 - Integrated genotypic and phenotypic data to support malaria control programs
+📄 [Read Report ➜]
 
 ## 🧪 Education 
 
