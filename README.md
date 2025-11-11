@@ -58,7 +58,6 @@ I’ve always been a runner, with pace of 6:30/km but barely breath, recently I�
 
 In this journey I explore discipline, endurance, and the intersection between physical performance and mental focus.
 
-### 📷 Photography  
 
 ### 📚 Books I Read to Stay Motivated
 I’ve been through failures — and ongoing ones too — but these books have helped me stay grounded, reshape my mindset, and stay focused on my goals. Every day, I’m still continuously learning how to improve myself and grow into a better version of who I want to be. 
@@ -74,8 +73,6 @@ Russ Harris - The Confidence Gap
 Peter Thiel - Zero to One 
 
 Mark Minervini – Think and Trade Like a Champion  (even though it’s about trading, many of the principles apply to life in general for any fields. I like the mindset it builds).
-
-
 
 ### 📷 Photography  
 Side passion that complements my scientific curiosity. https://vsco.co/cekerontheroad/gallery
