@@ -55,9 +55,9 @@ In addition, Awal Sehat is developing Orchid and Banana, an affordable personal 
 
 ##  🏃🏽‍♀️ Personal Projects  
 ### 🏅 Half Marathon 2026 Journey
-I’ve always been a runner, but recently I’ve approached it scientifically : tracking heart rate, cardio fitness, pace, and vertical oscillation. 
+I’ve always been a runner, with pace of 6:30/km but barely breath, recently I’ve approached it scientifically : first tracking heart rate, cardio fitness, pace, and vertical oscillation. 
 
-In this journey i explore discipline, endurance, and the intersection between physical performance and mental focus.
+In this journey I explore discipline, endurance, and the intersection between physical performance and mental focus.
 
 ### 📷 Photography  
 
@@ -71,15 +71,15 @@ Napoleon Hill – Think and Grow Rich
 **Mindset & Personal Growth**
 
 Russ Harris - The Confidence Gap
+
 Peter Thiel - Zero to One 
+
 Mark Minervini – Think and Trade Like a Champion  (even though it’s about trading, many of the principles apply to life in general for any fields. I like the mindset it builds).
 
 
 
-
-
 ### 📷 Photography  
-Capturing everyday life and community stories through the lens. Visual storytelling remains a side passion that complements my scientific curiosity. https://vsco.co/cekerontheroad/gallery
+Side passion that complements my scientific curiosity. https://vsco.co/cekerontheroad/gallery
 
 
 
